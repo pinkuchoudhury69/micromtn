@@ -1,4 +1,4 @@
-Logr
+Logr:AN AMAZING INITIATIVE IN THE WORLD OF BLOGGING
 ====
  - - -
 
